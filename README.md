@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on startup project
 - 📫 How to reach me on instagram (ig id : rohith_sensei) 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im currently planning to a company but i need a team!!!
+- ⚡ Fun fact: Im currently working on a community!!!
 
 <!---
 ROHITH13107/ROHITH13107 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
